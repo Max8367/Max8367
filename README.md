@@ -6,7 +6,7 @@ Hi, I'm Max,Software engineering student, and calisthenics athlete,I'm typing th
 |-Reading |-Learning | -coding | -Calisthenics | Video editing
 
 ### Social links
-[Instagram](url)
+[Instagram]([url]((https://www.instagram.com/ammar.calis?stkn=MWY1bGNnZ3ZtbGJybw==)))
 [Reddi]([url](https://www.reddit.com/user/ammar_cali/))
 
 
