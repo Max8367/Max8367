@@ -7,6 +7,5 @@ Football | Chess (580) | Solving 3x3 Rubic | Sketching | Designing
 
 ### Social links
 [Instagram](https://www.instagram.com/ammar.calis?stkn=MWY1bGNnZ3ZtbGJybw==) 
-[Reddi](https://www.reddit.com/user/ammar_cali/)
 
 
